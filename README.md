@@ -1,1 +1,0 @@
-# FTC-for-Beginner-from-KIRA
